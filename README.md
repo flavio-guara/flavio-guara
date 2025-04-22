@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **flaviorobio@gamil.com or 0001182349@senaimgaluno.com.br**
 
-- ⚡ Fun fact **Sou biólogo, IRATA N1, instrutor de rapel, guia de rafitng, praticante de canionismo. Explorador de cachoeiras. Amante de jogos digitais e animes. Gosto de analises estatíticas.**
+- ⚡ Fun fact **Sou biólogo, IRATA N1, instrutor de rapel, guia de rafitng, praticante de canionismo, praticante de rope jump. Explorador de cachoeiras. Amante de jogos digitais e animes. Gosto de analises estatíticas.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
